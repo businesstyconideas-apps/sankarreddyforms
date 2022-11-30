@@ -1,1 +1,0 @@
-smnc dnsbcd ksnclwmck.wnvjbj

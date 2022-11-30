@@ -1,6 +1,3 @@
 hgcjshfjshfjshcjshbb
 :wq
-cghsachjsabcsajbc
-kjbaskjbjabcjm
-sschbsahcbsahc 
-hbcbcmabcen
+
